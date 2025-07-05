@@ -19,5 +19,5 @@
 My GitHub. From scratch. With caffeine.
 
 ---
-📫 Reach me: wintersleepk@gmail.com  
+📫 Reach me: kiera7winter@gmail.com  
 🔗 Portfolio/Blog: coming soon...
